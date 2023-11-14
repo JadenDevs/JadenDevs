@@ -35,4 +35,4 @@ In addition to coding, here are some of my hobbies:
 
 Let's connect and learn from each other! Feel free to reach out:
 
-- [[LinkedIn] (https://www.linkedin.com/in/jaden-burleson-10b36029b/)
+- [LinkedIn] (https://www.linkedin.com/in/jaden-burleson-10b36029b/)
